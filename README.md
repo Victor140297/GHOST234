@@ -1,2 +1,2 @@
 # GHOST234
-New project
+//SCRAPPING PARA APTITUS
